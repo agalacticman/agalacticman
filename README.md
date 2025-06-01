@@ -5,4 +5,4 @@
 - 🗯️ My languages are Phyton, JS and Swift.
 - 👍🏻 I’m looking to collaborate with translations and mindfulness psychology to people who needs.
 - 🤓 Fun fact: I'm a self-tought programmer (FS). I started to learn when i get my first home-use PC, (2005). My first approach to programing was creating a web page for my class in HTML. Later i start to create Habbo Retro's servers and Tumblr themes.
-- 💕 I really love to help! So, if you have a problem, please, contact me on my [Instagram Page](https://www.instagram.com/sebastianiker_) !
+- 💕 I really love to help! So, if you have a problem, please, contact me on my [Instagram](https://www.instagram.com/sebastianiker_) !
